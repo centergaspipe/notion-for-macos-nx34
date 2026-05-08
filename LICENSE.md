@@ -1,4 +1,4 @@
-
+Notion for macOS custom Macro: custom themes & real-time editing offers the most advanced Notion for macOS macro, with custom themes and real-time editing. Ideal for professionals.
 
 
 
